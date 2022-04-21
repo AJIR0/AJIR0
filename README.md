@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @AJIR0
+- 👀 I’m interested in Software Engineering and building robots.
+- 🌱 I’m currently learning How to Draw Electrical Diagrams Professionally 
+- 📫 How to reach me: You can Contact me on my Discord account - Ajiro#5453
